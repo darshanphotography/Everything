@@ -1,2 +1,2 @@
 # Everything
-Feel free to share any type of your code here.
+Feel Free To Share Any Type Of Your Code Here.
